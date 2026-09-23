@@ -6,4 +6,7 @@ I play Roblox games, including Duelling Grounds and others.
 
 ## My Roblox Profile
 
-[Visit my Roblox profile](https://www.roblox.com/share?code=16a26e8a311c5d4c8bc2446cc3936c9c&type=ProfileShare&source=ProfileShare)
+About
+
+gojokid37 is one of millions using roblox today join him for action in duelling grounds and others
+[https://www.roblox.com/users/profile?username=gojokid37](https://www.roblox.com/users/profile?username=gojokid37)
